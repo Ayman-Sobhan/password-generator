@@ -1,1 +1,2 @@
-do whatever you want to do with this just don't sell it without my permission
+make a branch and then dump your code
+don't make a youtube video about it without my permission
